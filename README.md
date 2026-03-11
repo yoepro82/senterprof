@@ -1,1 +1,0 @@
-Haz clic para iniciar
